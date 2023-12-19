@@ -1,1 +1,1 @@
-This is most with mostly ignorance. Also ChatGPT because of said ignorance.
+This is made with mostly ignorance. Also ChatGPT because of said ignorance.
